@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... Computer
 - 💞️ I’m looking to collaborate on ...web site and software
 - 📫 How to reach me ... 
-Email ✉️- sp.world.co@gmailm.com
+Email ✉️- sp.world.co@gmail.com
 Mobile 📲- +918079043143
 Website- spworld.co.in
 
